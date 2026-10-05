@@ -1,0 +1,2 @@
+# premium-linseed-oil-finish-001-linseed-oil-finish-wood-seal
+Tired of uneven finishes and forgotten steps? Stop winging your wood sealing projects and get a repeatable system that ensures a flawless linseed oil finish every single time.  This Notion template turns your chaotic wood finishing workflow into a structured, trackable process. It manages project plans, material lists, application schedules, curing
